@@ -23,3 +23,71 @@ Extra ~ i get flustered easily so keep that in mind pls! And i purr quite a bit 
 
 
 ''He's who i love and nobody can change that,not in a billion years.'' - me
+
+
+
+Meanings
+
+🟢 ~ i don't use this one
+
+🌙 ~ lets talk!
+
+⛔️ ~ only replying to who i wanna
+
+⚫️ ~ Not on at all
+
+
+
+
+
+
+Shit wrong with me
+(you don't have to read these ofc)
+
+ADD - Attention deficit disorder
+
+ADHD - Attention deficit hyperactivity disorder
+
+BPD - Bipolar disorder
+
+OCD - Obsessive compulsive disorder
+
+ASD - Autism spectrum disorder
+
+SAD - Social anxiety disorder
+
+GAD - Generalized anxiety disorder
+
+Clinical depression
+
+SPD - Schizoid personality disorder
+
+DPD - Dependent personality disorder
+
+BPD - Borderline personality disorder
+
+CVS - Cyclic vomiting syndrome (without the vomiting)
+
+Fibromyalgia
+
+Psychosis
+
+Anorexia
+
+Dyslexia
+
+Dysgraphia
+
+Auditory Processing Disorder
+
+Language Processing Disorder
+
+Visual Perceptual/Visual Motor Deficit
+
+Alexithymia
+
+DID - Dissociative identity disorder
+~ Lost soul system
+
+
+(ain't done but i ain't typing all of 'em)
